@@ -1,1 +1,1 @@
-# sanzhar-mukan-profile-portfolio
+# sanzhar-mukan-personal-portfolio
